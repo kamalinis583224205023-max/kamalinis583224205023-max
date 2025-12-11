@@ -1,4 +1,4 @@
-# Hi! I'm Janani😍
+# Hi! I'm kamalini😍
 ### 👤***About Me***
      🕸️Janani from madurai.My date of birth is **3/01/07**.I'm currently persuing my **BTECH IT** of 2nd year at **NPRCET**.
      🕸️My short term goal is to perform well in my studies and to get a **9.5** GPA.
